@@ -1,1 +1,0 @@
-# astronomyppk.github.io
